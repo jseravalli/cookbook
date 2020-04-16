@@ -21,15 +21,15 @@ Totally optional: **65g** mix-ins like chopped walnuts or pecans, chocolate chip
 ## INSTRUCTIONS
 
 1. Preheat oven to 325 degrees Fahrenheit (165 degrees Celsius) and grease a 9×5-inch loaf pan.
-<br>
+
 2. In a large bowl, beat the oil and honey together with a whisk. Add the eggs and beat well, then whisk in the mashed bananas and milk. (If your coconut oil solidifies on contact with cold ingredients, simply let the bowl rest in a warm place for a few minutes, like on top of your stove, or warm it for about 10 seconds in the microwave.)
-<br>
+
 3. Add the baking soda, vanilla, salt and cinnamon, and whisk to blend. Lastly, switch to a big spoon and stir in the flour, just until combined. Some lumps are ok! If you’re adding any additional mix-ins, gently fold them in now.
-<br>
+
 4. Pour the batter into your greased loaf pan and sprinkle lightly with cinnamon. If you’d like a pretty swirled effect, run the tip of a knife across the batter in a zig-zag pattern.
-<br>
+
 4. Bake for 55 to 60 minutes, or until a toothpick inserted into the center comes out clean (typically, if I haven’t added any mix-ins, my bread is done at 55 minutes; if I have added mix-ins, it needs closer to 60 minutes)
-<br>
+
 5. Let the bread cool in the loaf pan for 10 minutes, then transfer it to a wire rack to cool for 20 minutes before slicing.
 
 ## NOTES
