@@ -6,17 +6,17 @@ This is a banana bread recipe using maple syrup and oil instead of sugar and syr
 
 ## INGREDIENTS
 
-- **78ml** cup melted coconut oil or extra-virgin olive oil or high quality vegetable oil*
-- **118ml** cup honey or maple syrup
+- **78ml** of melted coconut oil or extra-virgin olive oil or high quality vegetable oil*
+- **118ml** of honey or maple syrup
 - **2** eggs
-- **128g** mashed ripe bananas (about 2 ½ medium or 2 large bananas)
-- **60ml** milk of choice or water
-- **4.5g** baking soda (NOT baking powder; they aren’t the same!)
-- **5ml** vanilla extract
-- **4.5g** salt
-- **2.3g** ground cinnamon, plus more to swirl on top
-- **224g** white whole wheat flour or regular whole wheat flour
-Totally optional: **65g** mix-ins like chopped walnuts or pecans, chocolate chips, raisins, chopped dried fruit, fresh banana slices…
+- **128g** of mashed ripe bananas (about 2 ½ medium or 2 large bananas)
+- **60ml** of milk of choice or water
+- **4.5g** of baking soda (NOT baking powder; they aren’t the same!)
+- **5ml** of vanilla extract
+- **4.5g** of salt
+- **2.3g** of ground cinnamon, plus more to swirl on top
+- **224g** of white whole wheat flour or regular whole wheat flour
+Totally optional: **65g** of mix-ins like chopped walnuts or pecans, chocolate chips, raisins, chopped dried fruit, fresh banana slices…
 
 ## INSTRUCTIONS
 
